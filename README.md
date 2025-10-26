@@ -2,7 +2,7 @@
 National Intellectual Property Awards 2025 Submission
 
 Overview
-On October 26 2025 I Kallol Chakrabarti submitted my application for the National Intellectual Property Awards 2025 under the Individual Independent Researcher category. This submission highlights my contributions to intellectual property through innovative frameworks in governance civilizational research public policy and AI driven knowledge systems.
+On October 26 2025 I Kallol Chakrabarti applied for the National Intellectual Property Awards 2025 as an Individual Independent Researcher. This submission showcases my intellectual property contributions in governance civilizational research public policy and AI driven knowledge frameworks.
 
 Key Achievements Submitted
 Global Research Impact: Over 235 DOIs published on platforms like Zenodo SSRN OSF Figshare and OUCI with more than 3350 global downloads ranking me in the top 2 percent of researchers worldwide and as the top independent researcher globally.
